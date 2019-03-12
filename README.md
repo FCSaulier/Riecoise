@@ -1,2 +1,2 @@
 # Riecoise
-La rivale
+La rivale de la Bigoudaine
